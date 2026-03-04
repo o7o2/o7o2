@@ -1,5 +1,5 @@
 ## 💫 About Me:
-- 👋🏻 Hi, I'm Bambini<br>
+- 👋🏻 Hi, I'm Kamp~<br>
 - 🤩 My interested is playing badminton <br>
 - 🥵 I’m currently learning 航運管理<br>
 - 😶‍🌫️ My instagram:_7.hyh<br>
