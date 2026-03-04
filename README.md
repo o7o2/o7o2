@@ -1,6 +1,4 @@
-## Hi there 👋
--
-# 💫 About Me:
+## 💫 About Me:
 - 👋🏻 Hi, I'm Bambini<br>
 - 🤩 My interested is playing badminton <br>
 - 🥵 I’m currently learning 航運管理<br>
